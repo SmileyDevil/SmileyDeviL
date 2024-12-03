@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋 i am new! please teach me easy way to hack everything. :)
 
 <!--
 **SmileyDevil/SmileyDeviL** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
